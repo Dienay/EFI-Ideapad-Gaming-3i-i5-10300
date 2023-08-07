@@ -1,0 +1,1 @@
+# EFI-Ideapad-Gaming-31-i5-10300
